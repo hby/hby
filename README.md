@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+> So What or Kind of Blue were done in that era, the right hour, the right day. It's over; it's on the record.
+>
+>  -- Miles Davis
