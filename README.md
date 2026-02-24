@@ -18,3 +18,9 @@ Here are some ideas to get you started:
 > So What or Kind of Blue were done in that era, the right hour, the right day. It's over; it's on the record.
 >
 >  -- Miles Davis
+
+
+> I have spent lots of time on totally useless problems.
+>
+>  -- Claude Shannon
+
